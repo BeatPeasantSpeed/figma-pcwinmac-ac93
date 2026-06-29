@@ -1,4 +1,4 @@
-# 
+# Código aberto Figma plugins para Mac OS | Premium Figma plugins para PC Windows. Com sistemas de grade e simulação de física — otimizado para máximo desempenho em cada plataforma.
 
 
 
